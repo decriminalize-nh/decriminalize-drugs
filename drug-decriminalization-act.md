@@ -1,4 +1,4 @@
-DRUG DECRIMINALIZATION ACT OF 2020
+THE DRUG DECRIMINALIZATION ACT
 
 Whereas, drug prohibition has not only failed to keep drugs off the streets and prevent the harms caused by drug abuse, but prohibition has actually made society worse off by empowering an entire criminal class fueled by lucrative profits from the illicit drug trade.
 
