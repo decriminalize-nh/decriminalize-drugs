@@ -4,3 +4,4 @@ This repository contains the text of a work in progress bill to decriminalize th
 ## Table of contents  
 - [The Drug Decriminalization Act](drug-decriminalization-act.md)  
 - [Supporting resources](resources)  
+
