@@ -71,7 +71,7 @@ Section 4. (1) The people of New Hampshire recognize that drug prohibition has h
 
 (5) Money allocated to the Fund shall be distributed as follows:
 
-(a) 90% of the Fund remaining shall be used to provide direct cash payments either to anyone previously convicted as an adult, or adjudicated as a minor, prior to November 1, 2020, for any crime repealed by this Act, or (i) to their next of kin if the arrestee/convict/adjudicated minor has passed away within the last fifty years, or (ii) to their legal guardian if they are otherwise unable to accept the payment directly.
+(a) 90% of the Fund shall be used to provide direct cash payments either (i) to anyone previously convicted as an adult, or adjudicated as a minor, prior to November 1, 2020, for any crime repealed by this Act, or (ii) to their next of kin if the arrestee/convict/adjudicated minor has passed away within the last fifty years, or (iii) to their legal guardian if they are otherwise unable to accept the payment directly.
 
 (b) The remaining 10% of the Fund shall be used to provide direct cash payments to any law enforcement officers who have been physically or emotionally harmed in the line of duty while enforcing any of the statutes repealed by this Act.
 
