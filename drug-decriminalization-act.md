@@ -99,7 +99,7 @@ Section 6. (1) The Department of Revenue Administration shall credit and transfe
 
 (3) The savings as calculated in section 7 shall be transferred on or before the end of the fiscal year in which the calculation is completed.
 
-Section 7. (1)(a) Within 180 days of the end of first year in which this Act becomes effective, and within 180 days of the end of each subsequent year for the next five years, the Office of Legislative Budget Assistant shall calculate the savings to the State of New Hampshire resulting from the repeal of statutes specified in section 2, including any savings resulting from reductions in arrests, incarceration, and supervision.
+Section 7. (1)(a) Within 180 days of the end of the first year in which this Act becomes effective, and within 180 days of the end of each subsequent year for the next five years, the Office of Legislative Budget Assistant shall calculate the savings to the State of New Hampshire resulting from the repeal of statutes specified in section 2, including any savings resulting from reductions in arrests, incarceration, and supervision.
 
 (b) The savings shall be calculated based on a comparison of the most recent year concluded at the time the calculation is made and the year immediately preceding the year in which this Act became effective.
 
