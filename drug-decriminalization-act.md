@@ -109,7 +109,7 @@ Section 8. Moneys transferred to the Drug War Justice Fund and distributed pursu
 
 Section 9. Account Allocation. (1) The New Hampshire Department of Health and Human Services shall cause the moneys in the Drug War Justice Fund to be distributed as follows:
 
-(a) An amount necessary for administration of section 2 to section 4 not to exceed 4% of the moneys deposited into the Fund in any year.
+(a) An amount necessary for administration of section 4 to section 7 not to exceed 4% of the moneys deposited into the Fund in any year.
 
 (b) After the distribution set forth in subsection (1)(a) of this section, the remaining moneys in the Fund shall be distributed to the grants program as set forth in section 4.
 
