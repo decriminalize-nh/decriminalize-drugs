@@ -20,7 +20,7 @@ Whereas, punishing people who are suffering from addiction is expensive. It cost
 
 Whereas, households have been economically devastated by drug prohibition, with parents, guardians, children, and roommates taken away by the criminal justice system, leaving households saddled with legal bills and debt and one less helping hand. Even after someone is released from jail or prison, their household remains negatively affected by prohibition due to the reduced earning potential of someone with a criminal record.
 
-The People of New Hampshire therefore propose this Drug Decriminalization Act of 2020 to end drug prohibition in New Hampshire, shift to treating drug addiction and abuse as health issues rather than criminal issues, and remove the illicit drug manufacturing and distribution businesses from the exclusive control of black market criminals.
+The People of New Hampshire therefore propose this Drug Decriminalization Act of 2020 to end drug prohibition in New Hampshire, shift to treating drug addiction and abuse as health issues rather than criminal issues, and remove a large part of the drug manufacturing and distribution businesses from the exclusive control of black market criminals.
 
 FINDINGS AND POLICY
 
