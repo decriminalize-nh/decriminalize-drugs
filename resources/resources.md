@@ -24,6 +24,8 @@
 
 - 2020-01-24: [Where N.H. Democrats And The 2020 Candidates Stand On Drug Crisis Policies](https://web.archive.org/web/20200124152347/https://www.wbur.org/commonhealth/2020/01/24/new-hampshire-democratic-primary-opioids-drug-laws-proposals)
 
+- 2020-04-XX: [Drug War Reparations](https://www.pdcnet.org/resphilosophica/content/resphilosophica_2020_0097_0002_0141_0168)  
+
 - 2020-05-17: [Freedom of Health New Hampshire](https://nh.freedomofhealth.org/)
 
 - 2020-07-04: [War on Drugs Costs Statistics](https://web.archive.org/web/20200704190432/https://drugabusestatistics.org/drug-war-cost/)
