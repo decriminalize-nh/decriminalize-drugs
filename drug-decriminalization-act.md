@@ -20,7 +20,7 @@ Whereas, punishing people who are suffering from addiction is expensive. It cost
 
 Whereas, households have been economically devastated by drug prohibition, with parents, guardians, children, and roommates taken away by the criminal justice system, leaving households saddled with legal bills and debt and one less helping hand. Even after someone is released from jail or prison, their household remains negatively affected by prohibition due to the reduced earning potential of someone with a criminal record.
 
-The People of New Hampshire therefore propose this Drug Decriminalization Act of 2020 to end drug prohibition in New Hampshire, shift to treating drug addiction and abuse as health issues rather than criminal issues, and remove a large part of the drug manufacturing and distribution businesses from the exclusive control of black market criminals.
+The People of New Hampshire therefore propose this Drug Decriminalization Act of 20XX to end drug prohibition in New Hampshire, shift to treating drug addiction and abuse as health issues rather than criminal issues, and remove a large part of the drug manufacturing and distribution businesses from the exclusive control of black market criminals.
 
 FINDINGS AND POLICY
 
@@ -28,7 +28,7 @@ Section 1. (1)(a) The people of New Hampshire find that a health-based approach 
 
 (b) The people of New Hampshire further find that drug prohibition has failed to keep drugs off the streets. As long as there is demand, there will be an incentive for someone to produce a supply of drugs to meet demand. The profitability of the illicit drug trade has empowered multinational criminal organizations that have wreaked extreme terror and violence on the communities where they establish their businesses. In contrast, such horrors are virtually unheard of in markets such as agriculture, finance, and other legal trades. Decriminalizing drug manufacturing and distribution would enable law-abiding businesses and non-profits to produce a safer and more socially responsible supply of drugs to meet market demand.
 
-(2) The purpose of this Drug Decriminalization Act of 2020 is to adopt a health approach to drug addiction by removing criminal penalties for drug possession, and to enable law-abiding businesses and non-profits to produce a safer supply of drugs by removing criminal penalties for drug manufacturing and distribution.
+(2) The purpose of this Drug Decriminalization Act of 20XX is to adopt a health approach to drug addiction by removing criminal penalties for drug possession, and to enable law-abiding businesses and non-profits to produce a safer supply of drugs by removing criminal penalties for drug manufacturing and distribution.
 
 (3) The provisions of this Act shall be interpreted consistently with the findings, purposes, and policy objectives stated in this section and shall not be limited by any policy set forth in New Hampshire law that could conflict with or be interpreted to conflict with the purposes and policy objectives stated in this section.
 
@@ -71,7 +71,7 @@ Section 4. (1) The people of New Hampshire recognize that drug prohibition has h
 
 (5) Money allocated to the Fund shall be distributed as follows:
 
-(a) 90% of the Fund shall be used to provide direct cash payments either (i) to anyone previously convicted as an adult, or adjudicated as a minor, prior to November 1, 2020, for any crime repealed by this Act, or (ii) to their next of kin if the arrestee/convict/adjudicated minor has passed away within the last fifty years, or (iii) to their legal guardian if they are otherwise unable to accept the payment directly.
+(a) 90% of the Fund shall be used to provide direct cash payments either (i) to anyone previously convicted as an adult, or adjudicated as a minor, prior to November 1, 20XX, for any crime repealed by this Act, or (ii) to their next of kin if the arrestee/convict/adjudicated minor has passed away within the last fifty years, or (iii) to their legal guardian if they are otherwise unable to accept the payment directly.
 
 (b) The remaining 10% of the Fund shall be used to provide direct cash payments to any law enforcement officers who have been physically or emotionally harmed in the line of duty while enforcing any of the statutes repealed by this Act.
 
